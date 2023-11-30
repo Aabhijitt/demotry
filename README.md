@@ -1,2 +1,2 @@
 # demotry
-try new ways
+try new ways. join
